@@ -1,1 +1,1 @@
-Project was a joint effor by John Vahedi and Joe Archer
+Project was a joint effort by John Vahedi and Joe Archer
